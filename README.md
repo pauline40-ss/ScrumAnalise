@@ -8,7 +8,7 @@ Reduzir ciclos , unificar o time.
 
 Aguçar o comprometimento da equipe;
 
-Aprender , experimentar , inspencionar e adaptar"
+Aprender , experimentar , inspecionar e adaptar"
 
 Chancelando que pessoas vem antes dos processos.
 
